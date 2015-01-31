@@ -1,4 +1,4 @@
-# 我在小红书等你
+# 我们在小红书等你!
 
 ![任性](http://s4.xiaohongshu.com/static/huati/7c37bbbf76660d777b01bc2e1f735d8f.jpg?s=1420018319)
 
